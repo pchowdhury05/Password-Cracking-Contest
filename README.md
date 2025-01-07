@@ -1,11 +1,18 @@
 **Cracked Passwords**:
 jackbear:speed-order
+
 barneybear:dha4
+
 yogibear:Curtium
+
 cozybear:500768
+
 carebear:rd2tgq7k
+
 papabear:anthony
+
 grizzlybear:147852369
+
 pandabear:Password21&
  
 **Methodologies**:
